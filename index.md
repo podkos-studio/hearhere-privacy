@@ -54,4 +54,4 @@ If this policy changes, the new version will be posted at this address with an u
 
 ## Contact
 
-Questions about this policy: [your email address]
+Questions about this policy: podkos.studio@gmail.com
